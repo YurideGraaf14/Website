@@ -1,2 +1,1 @@
-Hi papa this is my website well its not kind of a website yet i needed to do hi papa first didnt i? 
-Well heehee i got first challenge ocmpleted thanks to you!
+Hoi papa dit is de Nederlands versie :D Waarom eerst Engels dan Nederlands?༼ つ ◕_◕ ༽つ(☞ﾟヮﾟ)☞¯\_(ツ)_/¯(┬┬﹏┬┬)
